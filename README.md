@@ -1,1 +1,1 @@
-# hello-world
+nos e estou interresado em me tornar CTO ou Engenheiro Softwer, mais antes disso eu tenho que terminar a escola que e um tedio eu não tenho amigos tambem nem fasso mais questão de ter, não me emporto com muita coisa tambem a não ser comigo mesmo, não que seja um "piscopata" eu não hme emporto com nimguem q esteja nueo meu canto de olho  
